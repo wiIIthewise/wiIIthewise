@@ -1,6 +1,8 @@
+
 ᓚ₍⑅^..^₎♡
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/cfe8804a-4dd6-40ee-9680-e1b631b07af0" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/5de081e5-758d-4681-98a8-08796380e48d" />
+
 
 
 
