@@ -1,17 +1,18 @@
 ᓚ₍⑅^..^₎♡
 
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/78922458-0a6d-4351-812b-f7755d4fb100" />
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/cfe8804a-4dd6-40ee-9680-e1b631b07af0" />
 
 
 
-ᓚᘏᗢ
 
 𐔌 . ⋮ Vienna / Victor .ᐟ ֹ ₊ ꒱
 
-≽^•⩊•^≼
-
 ﹌﹌﹌﹌﹌
 
-U can int if u like any of my interests! I may get slightly shy or awkward,,, 
+  Change - Djo
+  
+   ↻ ◁ || ▷ ↺
+   
+𝟢𝟢:𝟢𝟢 ───♡─── 𝟢2:58
 
-esp if im new to the fandom -o-
+☆⌁
