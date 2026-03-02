@@ -1,16 +1,18 @@
-## Hi there 👋
+![](https://files.catbox.moe/4dlbsh.png)
+<p align="center">
+  <img src="https://files.catbox.moe/fzieqt.webp"/>
+</p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="30" height="30" alt="tumblr_479afe87e81992c27b5142a1983ee304_86558ad0_1280" src="https://github.com/user-attachments/assets/c4d54921-0722-42f4-88e0-64992db4b1b0" /> ノ   I'm freezing outside  ,   𑄹   <img width="30" height="30" alt="tumblr_64d572b25f1842b0264e8cc5572b72fe_7c077059_1280" src="https://github.com/user-attachments/assets/8c217569-1428-434c-a2e5-78c02a791797" />
+ 
 
-<!--
-**wiIIthewise/wiIIthewise** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img width="99" height="56" alt="tumblr_85225a6c4825986d8da7ac38d4283ab4_876588a7_100" src="https://github.com/user-attachments/assets/1ab8f2f5-f420-495b-9793-ba54aa2bb50b" /> <img width="99" height="56" alt="tumblr_3e813bf6de6380839a2173e7ba91e6fc_fbecb180_400" src="https://github.com/user-attachments/assets/47a7f4b6-a0bf-4966-98b4-9d9c8505dee9" /> <img width="99" height="56" alt="tumblr_eec904de5b9611e00f164d202d30e1f1_b39647ad_100" src="https://github.com/user-attachments/assets/e1ee6445-d4ff-4dfc-ae88-500e09718d7b" /> <img width="99" height="56" alt="tumblr_08b111ac752107b53e4e34871d9c255f_a46b458a_100" src="https://github.com/user-attachments/assets/b57569ee-f450-4fe1-b371-ba29c4c5c34b" /> <img width="99" height="56" alt="tumblr_ceb6d961bdd062ef151698ff48fd9382_1a94a9fc_400" src="https://github.com/user-attachments/assets/61ed9657-d2b0-4d75-a6e1-e79be975cabc" /> ![tumblr_c852c12b91a6efade132b93ee2494435_ecb201bd_100](https://github.com/user-attachments/assets/af86d291-5072-4aac-ba6d-34ff489cfc6a)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ (♡ ᴗ͈ . ᴗ͈ )    oww,, hai !! i go by will ᆺ mangle ᆺ jane ᆺ nancy ~   𑄹    
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_53c27214e78f6be41c73fc2a4fe35bc8_bcf951aa_75](https://github.com/user-attachments/assets/a608c13c-f7de-451c-a2e7-c3544edca05b)
+♡  i am not the most social prson ever,, sorry~ but i luv making friends !!
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ![tumblr_666b399a5f765c6bca6fc23d16627e30_c4625e12_75](https://github.com/user-attachments/assets/5461bc55-adb6-4a3c-b7d1-3c0e99aaed40) ♡  i dont always know how to respond to text .. ill try filling it in but it only gets awkward !!  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ
+(  i also just don't use emojis (⚲□⚲) )
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤ ㅤㅤㅤ THE CLERADIN AND 23/9 YEAR OLD STUFF IS AN INSIDEJOKE WITH VYSTERS DONT CANCELMEㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_02e33667a7cac16a2f8413e1e2e45e62_370ebf29_100](https://github.com/user-attachments/assets/0a3c9f89-5aa3-45b3-996b-bc82da2fa103) ㅤ<img width="99" height="56" alt="tumblr_9ba894a8857677b80f2d3aa844f4e4e2_39338795_100 (1)" src="https://github.com/user-attachments/assets/cdf8b0d2-c577-4f14-8a59-bf633c4c76c8" /> ![tumblr_8193e078e6ac1fb2fc0de8a17bf9745d_fadfd45f_250](https://github.com/user-attachments/assets/841f91fe-13d5-403e-a199-400efd50e172) ![tumblr_f532ab4af38229f3ca47914d758a6331_408728ac_250 (1)](https://github.com/user-attachments/assets/4b11fe50-fe4d-4cd2-bcc0-759c1574205a) <img width="110" height="70" alt="tumblr_b2a59393ffde01d86f9a5618d50e4499_e188c7f8_400 (1)" src="https://github.com/user-attachments/assets/9eaf3ec1-ac82-4ed6-b8e0-98e5aee74842" /> <img width="99" height="70" alt="tumblr_dcaf7d60d269e117d4d3f63a989b2b24_6514ae6f_250" src="https://github.com/user-attachments/assets/d6d04f96-6bed-4271-aa49-2ad9a118c39d" />
 
-Here are some ideas to get you started:
+<img width="99" height="56" alt="tumblr_e21615d0a4c65a3045a5bedaf08d0b44_d0bb19f9_400 (1)" src="https://github.com/user-attachments/assets/5e4f2f91-0790-4dc4-95a0-374172da29ed" /> <img width="99" height="56" alt="tumblr_10ab248712a5429be934c39aaf9a0b93_93a78480_250" src="https://github.com/user-attachments/assets/7e43a312-e99b-43ea-abc7-947029196c22" /> <img width="99" height="56" alt="tumblr_e1149bd0f19f19172bf5d1c4a2303e8b_a7468958_400 (1)" src="https://github.com/user-attachments/assets/d21a0bb4-d6e4-4db9-9632-01e380b4a9e3" /> ![tumblr_c20f0da70f9f68a86445879326dd7aaf_58217506_400](https://github.com/user-attachments/assets/1924b1b5-a300-4aac-a05c-d41803881395) <img width="99" height="56" alt="tumblr_364a4e368cd24e302165c904cf943d0d_568efbfe_100" src="https://github.com/user-attachments/assets/c42bf5ae-9638-4187-96c9-256c05878040" /> <img width="99" height="56" alt="tumblr_5c6e3dc6e77be9e5b1367a4df0f8ef42_a08e436c_100" src="https://github.com/user-attachments/assets/e3ad1e26-8c67-438e-859a-f05b36e537f4" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
