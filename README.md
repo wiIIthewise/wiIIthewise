@@ -2,8 +2,8 @@
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1190" height="720" alt="bec3v1" src="https://github.com/user-attachments/assets/1391079d-7630-49f2-903f-dc8bd51a8b82" />
 ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓎢𓎟𓎟𓎡𓎢 , heard u like magic .. i got a wand & a rabbit !ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_2332452500f7699aad8705e065022b28_46809180_75](https://github.com/user-attachments/assets/ca85795a-6330-4edf-947d-6587bc0dc6d6) 　  𝒮he　　╱　　him　  ⠀˖　⠀˙⠀　𝓌illiam the 𝓌ise IRL , nonsharing 𝓅aladin ❤︎ 𝓂ike yume 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![70ec7274](https://github.com/user-attachments/assets/01669305-5f91-46e5-829f-71cad83b097c) ꕀ   　     autistic  𑄹 depressed , always interact with caution   . tonetags are whateverㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  　   ![d5f589d9](https://github.com/user-attachments/assets/a9413781-1659-4f5c-91ca-a3826092e3bc) ⟢     　  　  𝒞heck out my ℛentry and leave a letter on my 𝒜tabook ~   　     　  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![70ec7274](https://github.com/user-attachments/assets/01669305-5f91-46e5-829f-71cad83b097c) ꕀ   　     autistic  𑄹 depressed , always interact with caution   . tonetags are whateverㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  ![d5f589d9](https://github.com/user-attachments/assets/a9413781-1659-4f5c-91ca-a3826092e3bc) ⟢     　  　  𝒞heck out my ℛentry and leave a letter on my 𝒜tabook ~   　     　  
  　   　  　   　   　   　   　   　   　     　  ![8933fb59](https://github.com/user-attachments/assets/b4d1a50d-1c54-497a-9c35-a5d945ef1a3e)  ⌢ ⟡﹒ℳy 𝒻riends ੭ bonnie , wens , olive , dree , rowan , mike / boris , vy , floral , flowerboy , oni + rainy
                                       　   　   　   　   　  　   　   　   　   　         　     　   　   　   　   　   　   　   　   　     　   　   　   　   　       ![tumblr_578f90aababe75c241bb80ced713d398_4021d464_100](https://github.com/user-attachments/assets/97b11b7b-df2f-456e-b325-01ed988ef1f9)   　   　   　   　   　   
 <img width="130" height="99" alt="tumblr_e8c3fcb9c9d005fe3108d3107774da55_944636d6_100" src="https://github.com/user-attachments/assets/7ed7a0e3-ae1e-4128-afb7-87212b0d4621" />
